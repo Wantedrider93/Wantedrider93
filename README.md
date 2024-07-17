@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Wantedrider93
 - 👀 I’m interested in riding motorbike & learning new things
-- 🌱 I’m currently learning digital merketing & dat entry
+- 🌱 I’m currently learning digital merketing & data entry
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me DM for email 
 - 😄 Pronouns: .
